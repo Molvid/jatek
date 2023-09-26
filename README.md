@@ -1,0 +1,2 @@
+# jatek
+Kő paípír olló
